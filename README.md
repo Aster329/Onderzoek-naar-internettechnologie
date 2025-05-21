@@ -1,1 +1,1 @@
-# Onderzoen-naar-internettechnologie
+# Onderzoek-naar-internettechnologie
